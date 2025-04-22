@@ -7,9 +7,7 @@ We’ve released two versions of software for farming Grass:
 2) 💎 PAID version supports any accounts — register using your own referral code!
   * **DM us for the paid version in Telegram:** https://t.me/FAMERS0FT
 
-- 📩 Telegram chat: 
-- 📩 Telegram channel: 
-- 📩 Developer: 
+- 📩 Contacts: https://t.me/FAMERS0FT
 
 - - -
 
